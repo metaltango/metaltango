@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/ngmqqo.gif)
+![image](https://files.catbox.moe/bc05wu.gif)
 
 **Sephiroth or Noctis**　　　He / Him only　　　
 
