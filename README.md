@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/bc05wu.gif)
+![image](https://github.com/metaltango/metaltango/blob/main/download.gif?raw=true)
 
 **Sephiroth or Noctis**　　　He / Him only　　　
 
