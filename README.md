@@ -1,12 +1,15 @@
+<div align="center">
+  
 ![image](https://github.com/metaltango/metaltango/blob/main/seph.gif?raw=true) 
 
-**Sephiroth or Noctis**　　　He / Him only　
+**Sephiroth or Leon**　　　He / Him only　
 
-Usually with [Prompto](https://github.com/geostigmas),　but feel free to sit with me if you want.
+Usually sitting with my friends or in spawn.
 
-If you're wanting to personally talk to me, send me a whisper 
+If you're wanting to personally talk to me, send me a whisper. 
+I'm working on a rentry page for this stuff eventually 
 
-but guaranteed I will reply to an ask on my [atabook](https://sephiroth.atabook.org)
+Send me asks on my [atabook](https://sephiroth.atabook.org) !
 
 
 I am introject of [Sephiroth](https://finalfantasy.fandom.com/wiki/Sephiroth) and I talk about Cloud Strife 24/7, 
