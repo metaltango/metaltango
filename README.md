@@ -9,7 +9,7 @@ Usually sitting with my friends or in spawn.
 If you're wanting to personally talk to me, send me a whisper. 
 I'm working on a rentry page for this stuff eventually 
 
-Send me asks on my [atabook](https://sephiroth.atabook.org) !
+Send me stuff on my [atabook](https://sephiroth.atabook.org) !
 
 
 I am introject of [Sephiroth](https://finalfantasy.fandom.com/wiki/Sephiroth) and I talk about Cloud Strife 24/7, 
