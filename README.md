@@ -7,4 +7,6 @@
   <br> Chronic faggot. I talk about the men I like constantly, and I'm not ashamed of it.
   <br> If you want to talk send a whisper or leave something on my atabook.
   <br> extended information about me can be found on my [strawpage](https://gory.straw.page).
+   <br>
+    <br>
   <br> ![](https://files.catbox.moe/7t44yi.gif)
