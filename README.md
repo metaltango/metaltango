@@ -5,7 +5,7 @@
 **Wesker** ━━━━━━ I'm a man.
   <br> Adult and Plural.  **No DNI, I block / hide freely**
   <br> If you want to talk send a whisper or leave something on my atabook.
-  <br> extended information about me can be found on my [strawpage](https://gory.straw.page).
+  <br> extended information about me can be found on my [strawpage](https://godhood.straw.page).
    <br>
     <br>
   <br> ![](https://i.redd.it/rpyossul5bhg1.gif)
