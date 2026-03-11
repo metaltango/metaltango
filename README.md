@@ -1,12 +1,11 @@
 <div align='center'> 
-    <img align="left" width="200" src="https://files.catbox.moe/z9s931.gif" />
+    <img align="left" width="200" src="https://static.wikia.nocookie.net/residentevil/images/e/e4/Wesker_Revelations_2_Render.png/revision/latest?cb=20150302074104" />
 
 #  
-**Danny or Leon** ━━━━━━ I'm a dude.
-  <br> Adult and Plural.  *No DNI, I block / hide freely*
-  <br> Chronic faggot. I talk about the men I like constantly, and I'm not ashamed of it.
+**Wesker** ━━━━━━ I'm a man.
+  <br> Adult and Plural.  **No DNI, I block / hide freely**
   <br> If you want to talk send a whisper or leave something on my atabook.
   <br> extended information about me can be found on my [strawpage](https://gory.straw.page).
    <br>
     <br>
-  <br> ![](https://files.catbox.moe/o1pgie.gif)
+  <br> ![](https://i.redd.it/rpyossul5bhg1.gif)
